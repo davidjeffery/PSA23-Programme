@@ -30,6 +30,7 @@ Democracy or Capitalism: What caused the rise in inequality?
   *  Prof John Bartle, University of Essex
 
 
+<a href="https://calndr.link/d/event/?service=google&start=2023-04-04T09:30:00&end=2023-04-04T11:00:00&title=Inequality%20and%20Political%20Legitimacy%20in%20Britain%20and%20Beyond&location=Panel%20Room%201&timezone=Europe/London">Add to Calendar (Google)</a> / <a href="https://calndr.link/d/event/?service=apple&start=2023-04-04T09:30:00&end=2023-04-04T11:00:00&title=Inequality%20and%20Political%20Legitimacy%20in%20Britain%20and%20Beyond&location=Panel%20Room%201&timezone=Europe/London">Add to Calendar (iCal)</a> / <a href="https://calndr.link/d/event/?service=outlook&start=2023-04-04T09:30:00&end=2023-04-04T11:00:00&title=Inequality%20and%20Political%20Legitimacy%20in%20Britain%20and%20Beyond&location=Panel%20Room%201&timezone=Europe/London">Add to Calendar (Outlook)</a>
 {{< /details  >}}
 
 
@@ -46,6 +47,7 @@ Management consultants in/and the Nigerian government: theorising the Big Four�
   *  Dr Portia Roelofs, King's College London
 
 
+<a href="https://calndr.link/d/event/?service=google&start=2023-04-04T09:30:00&end=2023-04-04T11:00:00&title=Management%20consultants%20in%20government%20and%20politics%20-%20Part%201&location=Panel%20Room%202&timezone=Europe/London">Add to Calendar (Google)</a> / <a href="https://calndr.link/d/event/?service=apple&start=2023-04-04T09:30:00&end=2023-04-04T11:00:00&title=Management%20consultants%20in%20government%20and%20politics%20-%20Part%201&location=Panel%20Room%202&timezone=Europe/London">Add to Calendar (iCal)</a> / <a href="https://calndr.link/d/event/?service=outlook&start=2023-04-04T09:30:00&end=2023-04-04T11:00:00&title=Management%20consultants%20in%20government%20and%20politics%20-%20Part%201&location=Panel%20Room%202&timezone=Europe/London">Add to Calendar (Outlook)</a>
 {{< /details  >}}
 
 
@@ -69,6 +71,7 @@ How do you meme? Describing and explaining online humourous reaction to topical 
   *  Dr Paul Reilly, University of Glasgow
 
 
+<a href="https://calndr.link/d/event/?service=google&start=2023-04-04T09:30:00&end=2023-04-04T11:00:00&title=Social%20Media%20and%20the%20Meme-ification%20of%20Politics&location=Panel%20Room%203&timezone=Europe/London">Add to Calendar (Google)</a> / <a href="https://calndr.link/d/event/?service=apple&start=2023-04-04T09:30:00&end=2023-04-04T11:00:00&title=Social%20Media%20and%20the%20Meme-ification%20of%20Politics&location=Panel%20Room%203&timezone=Europe/London">Add to Calendar (iCal)</a> / <a href="https://calndr.link/d/event/?service=outlook&start=2023-04-04T09:30:00&end=2023-04-04T11:00:00&title=Social%20Media%20and%20the%20Meme-ification%20of%20Politics&location=Panel%20Room%203&timezone=Europe/London">Add to Calendar (Outlook)</a>
 {{< /details  >}}
 
 
@@ -98,6 +101,7 @@ Empowering digital democracy
   *  Dr Rahel Süß, Humboldt University Berlin
 
 
+<a href="https://calndr.link/d/event/?service=google&start=2023-04-04T09:30:00&end=2023-04-04T11:00:00&title=The%20Future%20of%20Participatory%20and%20Deliberative%20Democracy&location=Panel%20Room%204&timezone=Europe/London">Add to Calendar (Google)</a> / <a href="https://calndr.link/d/event/?service=apple&start=2023-04-04T09:30:00&end=2023-04-04T11:00:00&title=The%20Future%20of%20Participatory%20and%20Deliberative%20Democracy&location=Panel%20Room%204&timezone=Europe/London">Add to Calendar (iCal)</a> / <a href="https://calndr.link/d/event/?service=outlook&start=2023-04-04T09:30:00&end=2023-04-04T11:00:00&title=The%20Future%20of%20Participatory%20and%20Deliberative%20Democracy&location=Panel%20Room%204&timezone=Europe/London">Add to Calendar (Outlook)</a>
 {{< /details  >}}
 
 
@@ -125,6 +129,7 @@ Stirred but not Shaken? Norms of Democratic Recovery in London
   *  Dr Marta Wojciechowska, King's College London
 
 
+<a href="https://calndr.link/d/event/?service=google&start=2023-04-04T09:30:00&end=2023-04-04T11:00:00&title=Political%20theory%20and%20local-level%20politics&location=Panel%20Room%205&timezone=Europe/London">Add to Calendar (Google)</a> / <a href="https://calndr.link/d/event/?service=apple&start=2023-04-04T09:30:00&end=2023-04-04T11:00:00&title=Political%20theory%20and%20local-level%20politics&location=Panel%20Room%205&timezone=Europe/London">Add to Calendar (iCal)</a> / <a href="https://calndr.link/d/event/?service=outlook&start=2023-04-04T09:30:00&end=2023-04-04T11:00:00&title=Political%20theory%20and%20local-level%20politics&location=Panel%20Room%205&timezone=Europe/London">Add to Calendar (Outlook)</a>
 {{< /details  >}}
 
 
@@ -152,6 +157,7 @@ Sustaining Democracy in the Era of Growing Populism: A Case Study of Taiwan
   *  Mr NIKHIL TIWARI, Jawaharlal Nehru University, New Delhi
 
 
+<a href="https://calndr.link/d/event/?service=google&start=2023-04-04T09:30:00&end=2023-04-04T11:00:00&title=Populism%20in%20Asia&location=Panel%20Room%206&timezone=Europe/London">Add to Calendar (Google)</a> / <a href="https://calndr.link/d/event/?service=apple&start=2023-04-04T09:30:00&end=2023-04-04T11:00:00&title=Populism%20in%20Asia&location=Panel%20Room%206&timezone=Europe/London">Add to Calendar (iCal)</a> / <a href="https://calndr.link/d/event/?service=outlook&start=2023-04-04T09:30:00&end=2023-04-04T11:00:00&title=Populism%20in%20Asia&location=Panel%20Room%206&timezone=Europe/London">Add to Calendar (Outlook)</a>
 {{< /details  >}}
 
 
@@ -164,6 +170,7 @@ Captured: Who is in the Driver's Seat of Germany's Energy Policy? Examining the 
   *  Dr Hannes Stephan, University of Stirling
 
 
+<a href="https://calndr.link/d/event/?service=google&start=2023-04-04T09:30:00&end=2023-04-04T11:00:00&title=Roundtable:%20The%20Politics%20of%20the%20Energy%20Crisis&location=Panel%20Room%207&timezone=Europe/London">Add to Calendar (Google)</a> / <a href="https://calndr.link/d/event/?service=apple&start=2023-04-04T09:30:00&end=2023-04-04T11:00:00&title=Roundtable:%20The%20Politics%20of%20the%20Energy%20Crisis&location=Panel%20Room%207&timezone=Europe/London">Add to Calendar (iCal)</a> / <a href="https://calndr.link/d/event/?service=outlook&start=2023-04-04T09:30:00&end=2023-04-04T11:00:00&title=Roundtable:%20The%20Politics%20of%20the%20Energy%20Crisis&location=Panel%20Room%207&timezone=Europe/London">Add to Calendar (Outlook)</a>
 {{< /details  >}}
 
 
@@ -192,6 +199,7 @@ Emergence and persistence of participatory budgeting at local level in China: A 
   *  Dr Biao Huang, Zhejiang University
 
 
+<a href="https://calndr.link/d/event/?service=google&start=2023-04-04T09:30:00&end=2023-04-04T11:00:00&title=Participatory%20Local%20Governance&location=Panel%20Room%208&timezone=Europe/London">Add to Calendar (Google)</a> / <a href="https://calndr.link/d/event/?service=apple&start=2023-04-04T09:30:00&end=2023-04-04T11:00:00&title=Participatory%20Local%20Governance&location=Panel%20Room%208&timezone=Europe/London">Add to Calendar (iCal)</a> / <a href="https://calndr.link/d/event/?service=outlook&start=2023-04-04T09:30:00&end=2023-04-04T11:00:00&title=Participatory%20Local%20Governance&location=Panel%20Room%208&timezone=Europe/London">Add to Calendar (Outlook)</a>
 {{< /details  >}}
 
 
@@ -222,6 +230,7 @@ How we think about the political stances of others: Evidence on projection from 
   *  Dr Tabitha A. Baker, Bournemouth University
 
 
+<a href="https://calndr.link/d/event/?service=google&start=2023-04-04T09:30:00&end=2023-04-04T11:00:00&title=Psychological%20Aspects%20of%20Citizens'%20Attitudes%20and%20Judgements.&location=Panel%20Room%209&timezone=Europe/London">Add to Calendar (Google)</a> / <a href="https://calndr.link/d/event/?service=apple&start=2023-04-04T09:30:00&end=2023-04-04T11:00:00&title=Psychological%20Aspects%20of%20Citizens'%20Attitudes%20and%20Judgements.&location=Panel%20Room%209&timezone=Europe/London">Add to Calendar (iCal)</a> / <a href="https://calndr.link/d/event/?service=outlook&start=2023-04-04T09:30:00&end=2023-04-04T11:00:00&title=Psychological%20Aspects%20of%20Citizens'%20Attitudes%20and%20Judgements.&location=Panel%20Room%209&timezone=Europe/London">Add to Calendar (Outlook)</a>
 {{< /details  >}}
 
 
@@ -248,6 +257,7 @@ Anger, hope or empathy : Covid-19 and the political emotions of young adults
   *  Dr Cécile Van de Velde, Université de Montréal
 
 
+<a href="https://calndr.link/d/event/?service=google&start=2023-04-04T09:30:00&end=2023-04-04T11:00:00&title=Young%20people's%20politics%20and%20social%20inequalities&location=Panel%20Room%2010&timezone=Europe/London">Add to Calendar (Google)</a> / <a href="https://calndr.link/d/event/?service=apple&start=2023-04-04T09:30:00&end=2023-04-04T11:00:00&title=Young%20people's%20politics%20and%20social%20inequalities&location=Panel%20Room%2010&timezone=Europe/London">Add to Calendar (iCal)</a> / <a href="https://calndr.link/d/event/?service=outlook&start=2023-04-04T09:30:00&end=2023-04-04T11:00:00&title=Young%20people's%20politics%20and%20social%20inequalities&location=Panel%20Room%2010&timezone=Europe/London">Add to Calendar (Outlook)</a>
 {{< /details  >}}
 
 
@@ -275,6 +285,7 @@ The interaction between Scotland’s two constitutional questions, Independence 
   *  Dr Jac Larner, Cardiff University
 
 
+<a href="https://calndr.link/d/event/?service=google&start=2023-04-04T09:30:00&end=2023-04-04T11:00:00&title=Voters%20and%20Voter%20Targeting&location=Panel%20Room%2011&timezone=Europe/London">Add to Calendar (Google)</a> / <a href="https://calndr.link/d/event/?service=apple&start=2023-04-04T09:30:00&end=2023-04-04T11:00:00&title=Voters%20and%20Voter%20Targeting&location=Panel%20Room%2011&timezone=Europe/London">Add to Calendar (iCal)</a> / <a href="https://calndr.link/d/event/?service=outlook&start=2023-04-04T09:30:00&end=2023-04-04T11:00:00&title=Voters%20and%20Voter%20Targeting&location=Panel%20Room%2011&timezone=Europe/London">Add to Calendar (Outlook)</a>
 {{< /details  >}}
 
 
@@ -300,6 +311,7 @@ Wheels on fire? The politics of bike lanes
   *  Prof Kai Wegrich, Hertie School
 
 
+<a href="https://calndr.link/d/event/?service=google&start=2023-04-04T09:30:00&end=2023-04-04T11:00:00&title=Public%20sector%20performance%20and%20innovation&location=Panel%20Room%2012&timezone=Europe/London">Add to Calendar (Google)</a> / <a href="https://calndr.link/d/event/?service=apple&start=2023-04-04T09:30:00&end=2023-04-04T11:00:00&title=Public%20sector%20performance%20and%20innovation&location=Panel%20Room%2012&timezone=Europe/London">Add to Calendar (iCal)</a> / <a href="https://calndr.link/d/event/?service=outlook&start=2023-04-04T09:30:00&end=2023-04-04T11:00:00&title=Public%20sector%20performance%20and%20innovation&location=Panel%20Room%2012&timezone=Europe/London">Add to Calendar (Outlook)</a>
 {{< /details  >}}
 
 
@@ -335,6 +347,7 @@ Understanding and contextualizing attitudes and beliefs for the COVID-19 pandemi
   *  Prof Vasiliki Georgiadou, Panteion University
 
 
+<a href="https://calndr.link/d/event/?service=google&start=2023-04-04T09:30:00&end=2023-04-04T11:00:00&title=Political%20Attitudes,%20Discursive%20Constructions%20in%20the%20Greek%20Society%20and%20Political%20System&location=Panel%20Room%2013&timezone=Europe/London">Add to Calendar (Google)</a> / <a href="https://calndr.link/d/event/?service=apple&start=2023-04-04T09:30:00&end=2023-04-04T11:00:00&title=Political%20Attitudes,%20Discursive%20Constructions%20in%20the%20Greek%20Society%20and%20Political%20System&location=Panel%20Room%2013&timezone=Europe/London">Add to Calendar (iCal)</a> / <a href="https://calndr.link/d/event/?service=outlook&start=2023-04-04T09:30:00&end=2023-04-04T11:00:00&title=Political%20Attitudes,%20Discursive%20Constructions%20in%20the%20Greek%20Society%20and%20Political%20System&location=Panel%20Room%2013&timezone=Europe/London">Add to Calendar (Outlook)</a>
 {{< /details  >}}
 
 
@@ -366,6 +379,7 @@ Multilevel Blame and Credit Games: Examining Responsibility Management during EU
   *  Ms Agni Poullikka, City University of London
 
 
+<a href="https://calndr.link/d/event/?service=google&start=2023-04-04T09:30:00&end=2023-04-04T11:00:00&title=Rhetoric%20and%20representation%20in%20parliaments&location=Panel%20Room%2014&timezone=Europe/London">Add to Calendar (Google)</a> / <a href="https://calndr.link/d/event/?service=apple&start=2023-04-04T09:30:00&end=2023-04-04T11:00:00&title=Rhetoric%20and%20representation%20in%20parliaments&location=Panel%20Room%2014&timezone=Europe/London">Add to Calendar (iCal)</a> / <a href="https://calndr.link/d/event/?service=outlook&start=2023-04-04T09:30:00&end=2023-04-04T11:00:00&title=Rhetoric%20and%20representation%20in%20parliaments&location=Panel%20Room%2014&timezone=Europe/London">Add to Calendar (Outlook)</a>
 {{< /details  >}}
 
 
@@ -394,6 +408,7 @@ The Labour Party and Muslims
   *  Ms Farah Hussain, Queen Mary University London
 
 
+<a href="https://calndr.link/d/event/?service=google&start=2023-04-04T09:30:00&end=2023-04-04T11:00:00&title=Social%20democratic%20parties%20and%20movements&location=Panel%20Room%2015&timezone=Europe/London">Add to Calendar (Google)</a> / <a href="https://calndr.link/d/event/?service=apple&start=2023-04-04T09:30:00&end=2023-04-04T11:00:00&title=Social%20democratic%20parties%20and%20movements&location=Panel%20Room%2015&timezone=Europe/London">Add to Calendar (iCal)</a> / <a href="https://calndr.link/d/event/?service=outlook&start=2023-04-04T09:30:00&end=2023-04-04T11:00:00&title=Social%20democratic%20parties%20and%20movements&location=Panel%20Room%2015&timezone=Europe/London">Add to Calendar (Outlook)</a>
 {{< /details  >}}
 
 
@@ -413,6 +428,7 @@ The Re-emergence of Historical Norms: The Rise of the G7
   *  Mr Gregory Stiles, The University of Sheffield
 
 
+<a href="https://calndr.link/d/event/?service=google&start=2023-04-04T09:30:00&end=2023-04-04T11:00:00&title=Ideology%20and%20Policy&location=Panel%20Room%2017&timezone=Europe/London">Add to Calendar (Google)</a> / <a href="https://calndr.link/d/event/?service=apple&start=2023-04-04T09:30:00&end=2023-04-04T11:00:00&title=Ideology%20and%20Policy&location=Panel%20Room%2017&timezone=Europe/London">Add to Calendar (iCal)</a> / <a href="https://calndr.link/d/event/?service=outlook&start=2023-04-04T09:30:00&end=2023-04-04T11:00:00&title=Ideology%20and%20Policy&location=Panel%20Room%2017&timezone=Europe/London">Add to Calendar (Outlook)</a>
 {{< /details  >}}
 
 
@@ -442,6 +458,7 @@ Provisioning digitalised welfare in rural India: effectiveness, agency &amp; leg
   *  Ms Vanita Leah Falcao, King's College London
 
 
+<a href="https://calndr.link/d/event/?service=google&start=2023-04-04T09:30:00&end=2023-04-04T11:00:00&title=Future%20Directions%20for%20Street%20Level%20Bureaucracy%201&location=Panel%20Room%2019&timezone=Europe/London">Add to Calendar (Google)</a> / <a href="https://calndr.link/d/event/?service=apple&start=2023-04-04T09:30:00&end=2023-04-04T11:00:00&title=Future%20Directions%20for%20Street%20Level%20Bureaucracy%201&location=Panel%20Room%2019&timezone=Europe/London">Add to Calendar (iCal)</a> / <a href="https://calndr.link/d/event/?service=outlook&start=2023-04-04T09:30:00&end=2023-04-04T11:00:00&title=Future%20Directions%20for%20Street%20Level%20Bureaucracy%201&location=Panel%20Room%2019&timezone=Europe/London">Add to Calendar (Outlook)</a>
 {{< /details  >}}
 
 
@@ -466,6 +483,7 @@ Comparing the ideology of Wang Huning and Mikhail Andreyevich Suslov to understa
   *  Mr Ming Tian, Hangzhou Yungu School
 
 
+<a href="https://calndr.link/d/event/?service=google&start=2023-04-04T09:30:00&end=2023-04-04T11:00:00&title=Marxism%20in%20China%20-%20Debates&location=Panel%20Room%2020&timezone=Europe/London">Add to Calendar (Google)</a> / <a href="https://calndr.link/d/event/?service=apple&start=2023-04-04T09:30:00&end=2023-04-04T11:00:00&title=Marxism%20in%20China%20-%20Debates&location=Panel%20Room%2020&timezone=Europe/London">Add to Calendar (iCal)</a> / <a href="https://calndr.link/d/event/?service=outlook&start=2023-04-04T09:30:00&end=2023-04-04T11:00:00&title=Marxism%20in%20China%20-%20Debates&location=Panel%20Room%2020&timezone=Europe/London">Add to Calendar (Outlook)</a>
 {{< /details  >}}
 
 
@@ -491,6 +509,7 @@ Television, Security, and Vigil: Nuclear Weapons and Popular Culture
   *  Ms Caroline Leicht, University of Southampton
 
 
+<a href="https://calndr.link/d/event/?service=google&start=2023-04-04T09:30:00&end=2023-04-04T11:00:00&title=Gendered%20Political%20Communication&location=Panel%20Room%2021&timezone=Europe/London">Add to Calendar (Google)</a> / <a href="https://calndr.link/d/event/?service=apple&start=2023-04-04T09:30:00&end=2023-04-04T11:00:00&title=Gendered%20Political%20Communication&location=Panel%20Room%2021&timezone=Europe/London">Add to Calendar (iCal)</a> / <a href="https://calndr.link/d/event/?service=outlook&start=2023-04-04T09:30:00&end=2023-04-04T11:00:00&title=Gendered%20Political%20Communication&location=Panel%20Room%2021&timezone=Europe/London">Add to Calendar (Outlook)</a>
 {{< /details  >}}
 
 
@@ -514,6 +533,7 @@ Employing a Bayesian Spatial Following Model to Estimate the Ideological Positio
   *  Mr Conor Gaughan, University of Southampton
 
 
+<a href="https://calndr.link/d/event/?service=google&start=2023-04-04T09:30:00&end=2023-04-04T11:00:00&title=New%20Digital%20Methods%20in%20Policymaking&location=Panel%20Room%2022&timezone=Europe/London">Add to Calendar (Google)</a> / <a href="https://calndr.link/d/event/?service=apple&start=2023-04-04T09:30:00&end=2023-04-04T11:00:00&title=New%20Digital%20Methods%20in%20Policymaking&location=Panel%20Room%2022&timezone=Europe/London">Add to Calendar (iCal)</a> / <a href="https://calndr.link/d/event/?service=outlook&start=2023-04-04T09:30:00&end=2023-04-04T11:00:00&title=New%20Digital%20Methods%20in%20Policymaking&location=Panel%20Room%2022&timezone=Europe/London">Add to Calendar (Outlook)</a>
 {{< /details  >}}
 
 
@@ -540,6 +560,7 @@ Between Emotions and Foreign Policy:  The Case of the EU-Turkey Relations During
   *  Mr Erman Ermihan, Kadir Has University
 
 
+<a href="https://calndr.link/d/event/?service=google&start=2023-04-04T09:30:00&end=2023-04-04T11:00:00&title=Populism%20and%20Elections%20in%20Turkey&location=Panel%20Room%2023&timezone=Europe/London">Add to Calendar (Google)</a> / <a href="https://calndr.link/d/event/?service=apple&start=2023-04-04T09:30:00&end=2023-04-04T11:00:00&title=Populism%20and%20Elections%20in%20Turkey&location=Panel%20Room%2023&timezone=Europe/London">Add to Calendar (iCal)</a> / <a href="https://calndr.link/d/event/?service=outlook&start=2023-04-04T09:30:00&end=2023-04-04T11:00:00&title=Populism%20and%20Elections%20in%20Turkey&location=Panel%20Room%2023&timezone=Europe/London">Add to Calendar (Outlook)</a>
 {{< /details  >}}
 
 
@@ -567,6 +588,7 @@ The Biden Administration and the Politics of the US-UK Trade Relations: Are Obst
   *  Dr Oleg Kodolov, University of Toronto
 
 
+<a href="https://calndr.link/d/event/?service=google&start=2023-04-04T09:30:00&end=2023-04-04T11:00:00&title=Global%20Britain?&location=Panel%20Room%2024&timezone=Europe/London">Add to Calendar (Google)</a> / <a href="https://calndr.link/d/event/?service=apple&start=2023-04-04T09:30:00&end=2023-04-04T11:00:00&title=Global%20Britain?&location=Panel%20Room%2024&timezone=Europe/London">Add to Calendar (iCal)</a> / <a href="https://calndr.link/d/event/?service=outlook&start=2023-04-04T09:30:00&end=2023-04-04T11:00:00&title=Global%20Britain?&location=Panel%20Room%2024&timezone=Europe/London">Add to Calendar (Outlook)</a>
 {{< /details  >}}
 
 
@@ -590,6 +612,7 @@ Social Justice in German Politics
   *  Prof Isabelle-Christine Panreck, Catholic University of Applied Science Cologne
 
 
+<a href="https://calndr.link/d/event/?service=google&start=2023-04-04T09:30:00&end=2023-04-04T11:00:00&title=A%20Question%20of%20Balance:%20Interdisciplinary%20Perspectives%20on%20Political%20Change%20in%20Germany&location=Panel%20Room%2025&timezone=Europe/London">Add to Calendar (Google)</a> / <a href="https://calndr.link/d/event/?service=apple&start=2023-04-04T09:30:00&end=2023-04-04T11:00:00&title=A%20Question%20of%20Balance:%20Interdisciplinary%20Perspectives%20on%20Political%20Change%20in%20Germany&location=Panel%20Room%2025&timezone=Europe/London">Add to Calendar (iCal)</a> / <a href="https://calndr.link/d/event/?service=outlook&start=2023-04-04T09:30:00&end=2023-04-04T11:00:00&title=A%20Question%20of%20Balance:%20Interdisciplinary%20Perspectives%20on%20Political%20Change%20in%20Germany&location=Panel%20Room%2025&timezone=Europe/London">Add to Calendar (Outlook)</a>
 {{< /details  >}}
 
 
@@ -616,6 +639,7 @@ Families or Ethnic Groups? Using Game of Thrones as a teaching tool
   *  Prof Katharine Adeney, University of Nottingham
 
 
+<a href="https://calndr.link/d/event/?service=google&start=2023-04-04T09:30:00&end=2023-04-04T11:00:00&title=Political%20Pedagogy%20in%20the%20Everyday&location=Panel%20Room%2026&timezone=Europe/London">Add to Calendar (Google)</a> / <a href="https://calndr.link/d/event/?service=apple&start=2023-04-04T09:30:00&end=2023-04-04T11:00:00&title=Political%20Pedagogy%20in%20the%20Everyday&location=Panel%20Room%2026&timezone=Europe/London">Add to Calendar (iCal)</a> / <a href="https://calndr.link/d/event/?service=outlook&start=2023-04-04T09:30:00&end=2023-04-04T11:00:00&title=Political%20Pedagogy%20in%20the%20Everyday&location=Panel%20Room%2026&timezone=Europe/London">Add to Calendar (Outlook)</a>
 {{< /details  >}}
 
 
